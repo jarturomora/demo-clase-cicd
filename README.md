@@ -2,7 +2,7 @@
 
 1. Arturo @jarturomora
 
-2. JuanPabloCeron@JuanJabloCeron
+2. JuanPabloCeron@JuanPabloCeron
 
 3. Rubén @rubpri
 
